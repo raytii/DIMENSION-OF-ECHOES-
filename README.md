@@ -1,7 +1,8 @@
 # DIMENSION-OF-ECHOES-
 Goldsmiths Term 2 - Sketch 4: Bodies &amp; Machine Seeing,
 
-# DIMENSION OF ECHOES // 虚实之维
+#![Uploading Dimension Of Echoes.gif.GIF…]()
+ DIMENSION OF ECHOES // 虚实之维
 
 **Name:** Raytii Jiang 
 **Date:** March 2026
